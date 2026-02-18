@@ -1,1 +1,1 @@
-Ozioma Gospel Joshua - Virtual Assistant Portfolio                                                                                 welcome
+Ozioma Gospel Joshua - Virtual Assistant Portfolio.                                                                                                                Welcome to my Virtual Assistant Portfolio.                                                                                                                                I am aa well organized, detail oriented and commited Virtual Assistant wwith experience in Email  
